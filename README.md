@@ -13,4 +13,5 @@ Aqui estão algumas ideias para você começar:
 - 📫 Como entrar em contato comigo: marialayane323@gmal.com.br
 - 😄 Pronomes: ela/dela
 - ⚡ Curiosidade: DORMIR, COMER, MEXER NO CELULAR, FINALIZAR O CABELO, OUVIR MÚSICA, TOMAR AÇAI, SAIR, JOGAR FF, DANÇAR, E ETC. 
-  
+
+![](https://media1.tenor.com/m/exzCrBy_LmQAAAAd/cacheada.gif)
