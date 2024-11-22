@@ -15,3 +15,4 @@ Aqui estão algumas ideias para você começar:
 - ⚡ Curiosidade: DORMIR, COMER, MEXER NO CELULAR, FINALIZAR O CABELO, OUVIR MÚSICA, TOMAR AÇAI, SAIR, JOGAR FF, DANÇAR, E ETC. 
 
 ![](https://media1.tenor.com/m/exzCrBy_LmQAAAAd/cacheada.gif)
+![](https://media1.tenor.com/m/hX4-5aSxEucAAAAd/moana-i-am-moana-of-motunui.gif)
